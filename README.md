@@ -10,4 +10,4 @@ Estou no Github principalmente para as seguintes ações:
   
   @ga_brielborduchi 📸
   
-https://i.makeagif.com/media/11-30-2020/rGN2v-.gif
+![](https://i.makeagif.com/media/11-30-2020/rGN2v-.gif)
