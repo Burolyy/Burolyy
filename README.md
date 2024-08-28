@@ -9,5 +9,5 @@ Estou no Github principalmente para as seguintes ações:
   Para entrar em contato comigo, acesse:
   
   @ga_brielborduchi 📸
-  
-![](https://i.makeagif.com/media/11-30-2020/rGN2v-.gif)
+
+![](https://media.tenor.com/SY_ipFXwR6cAAAAC/gogeta.gif)
